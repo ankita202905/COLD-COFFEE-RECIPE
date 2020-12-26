@@ -1,0 +1,1 @@
+add milk , ice cubes , ice cream scoops , coffee powder , sugar , grind it and serve.
